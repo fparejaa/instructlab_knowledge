@@ -4,8 +4,7 @@ Wide From Wikipedia, the free encyclopedia Dr. Hikmat Abu Zayd
 
 Hikmat Abu Zayd, 1962 Minister of Social Affairs of Egypt.
 In office 29 September 1962 – 30 September 1965
-under President Gamal Abdel Nasser 
-and Prime Minister Ali Sabri
+under President Gamal Abdel Nasser and Prime Minister Ali Sabri
 
 
 Personal details Born 1922 or 1923\[I\]
